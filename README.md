@@ -16,12 +16,17 @@ oyomembuatrugi@protonmail.com
 Twitter:
 @RugiOyo
 
+Reddit:
+https://www.reddit.com/user/OYOMembuatRugi
+
 ## Dimana saja?
 Untuk sekarang, cerita yang sudah saya terima akan dibagikan di:
 
 Twitter @RugiOyo
 
 Github Pages https://oyomembuatrugi.github.io
+
+Reddit https://www.reddit.com/user/OYOMembuatRugi
 
 ## Bagikan ini ke semua orang
 Kamu bisa membantu kita dengan membagikan sosial media dan blog ini ke orang lain agar lebih banyak yang tau tentang kerugian yang disebabkan oleh OYO
